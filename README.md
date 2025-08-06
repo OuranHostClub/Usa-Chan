@@ -1,4 +1,4 @@
-# Usa-Chan
+# Usa-Chan Usa-Chan click me !!
 ✦ ⌇ BYI ！
 We are a undiagnosed system ! If your not okay with that please don't int with us for your sake.
 Depending who is front we may be aggressive tho rarely.
